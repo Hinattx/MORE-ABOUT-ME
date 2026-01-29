@@ -1,2 +1,2 @@
-# MORE-ABOUT-ME
-Im very nice and talkative so don’t be afraid to be yourself around me I won’t judge.
+#ᴍᴏʀᴇ-ᴀʙᴏᴜᴛ-ᴍᴇ 
+ɪᴍ ᴠᴇʀʏ ɴɪᴄᴇ ᴀɴᴅ ᴛᴀʟᴋᴀᴛɪᴠᴇ ꜱᴏ ᴅᴏɴ’ᴛ ʙᴇ ᴀꜰʀᴀɪᴅ ᴛᴏ ʙᴇ ʏᴏᴜʀꜱᴇʟꜰ ᴀʀᴏᴜɴᴅ ᴍᴇ ɪ ᴡᴏɴ’ᴛ ᴊᴜᴅɢᴇ.
